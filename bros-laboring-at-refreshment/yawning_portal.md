@@ -14,4 +14,12 @@ The party then came in like a hurricane, kicking down doors, squashing goblins u
 
 The party continued sneaking around, eventually believing they found the main goblin living quarters.  Taking an alternate route (and locking the folks in the living area), they party attempted to enter what seemed to be the leader's chambers.  Unfortunately, Danzor's mirror was spotted and the creaters within rushed upon and bound the ruffians (I mean the party).
 
-While talking with the goblin chief (Durnn), the party eventually managed to break free thanks to a distraction by Zydron and Volkmar.   That's where we stopped....
+While talking with the goblin chief (Durnn), the party eventually managed to break free thanks to a distraction by Zydron and Volkmar.   ...
+
+After breaking free, the party engaged the hobgoblins to attempt to defeat them.  Of the three hobgoblins, one was thrown down the well and died.  Another was defeated by a savage critical strike from Volkmar.
+
+Toyle put another hobgoblin to sleep, as well as the goblin Grenl.  Durnn awoke the hobgoblin that was asleep and Durnn and the hobgobling engaged the party and quickly did massive amounts of damage.  Party members were dropping like flies.  Danzor jumped across the pit at some point and died shortly thereafter.  Gryff did bring him back to life, but Danzor fell again.
+
+Eventually Durnn (down to 1 hit point, unbeknownst to the party) and the lone hobgobling in green knocked the entire party unconscious shortly after Gryff coup de graced the sleeping Grenl.  The party rolled through their death save where Volkmar and Zydron regretfully completely perished.  Toyle, Gryff, and Danzor found themselves in the dungeon.
+
+The party was then given a few choices: 1) whole party dies, and you restart sunless citadel at level 1.       2) the 3 party members that lived are in a dungeon, Gary & Lance reroll characters.  everyone is level 2    3) move to forge of fury (next module) with entirely new characters for the whole party...all players level 3

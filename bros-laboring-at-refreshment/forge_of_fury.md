@@ -1,3 +1,8 @@
+# Table of Contents
+* [Character Notes](#character-notes)
+* [Adventure Log](#adventure-log)
+    * [5JUN2020](#5jun2020)
+
 # Character Notes:
 
 * Yesod:

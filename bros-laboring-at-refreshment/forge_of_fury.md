@@ -39,3 +39,19 @@ forth my latent magical power.
 # Adventure Log
 ## 5JUN2020
 The party meets in the Yawning Portal seeking their next adventure...
+## 3JULY2020
+After consulting the map the part started out on the road. 
+
+We came to a path leading through a dense forest we walked for a short distance. Not far on the path we saw a mountain with smoke rising from its top. The party decided that it might be a safer choice to leave the road and make their way though the forest in hopes of avoiding any traps or the notice of any goblins. 
+
+After an extensive flex fest over who could walk through trees best (a rich kid with survival experience or a humanoid/animal hybrid thing) Yessod led the way. During our lovely walk through the trees we came upon a clearing full of boars (they looked like rats but whatever).
+
+During the combat the herd of boars (borats) charged to take on Yessid and Thodris quickly came to his aid.  Unfortunately for Yessod, Thodris crit failed his attack and struck his party member. Other highlights include Bhat Manzor being a GOD with a bow, Skarus practicing his social distancing, and Delah using her first bit of WILD MAGIC. The effect being that she grew a third eye and a wisdom buff for the remainder of our combat. 
+
+The team cleaned up pretty quickly without taking too much damage. 
+
+After a short rest, Skarus sent his familiar to fly to the source of the smoke and investigate what might be the cause. (Why the hell didn’t we do that from the beginning? Noobs…)
+
+We made our way back to the road and Bhat Mazor led the way while checking for any traps. None being found we arrived at the end and came to a narrow path. Bhat Manzor, being the sneaky son of a bitch that he is, snuck up the road to scout and found a couple of goblins standing guard. 
+
+Reporting this back to the party we decided that the best course of action was to shoot an arrow down the pass and draw our enemies down the road. 

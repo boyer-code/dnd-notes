@@ -4,6 +4,7 @@ Table of Contents
     * [5JUN2020](#5jun2020)
     * [3JULY2020](#3JULY2020)
     * [10JULY2020](#10JULY2020)
+    * [14AUG2020](#14AUG2020)
 
 # Character Notes:
 
@@ -72,4 +73,13 @@ The party rushed forward to try to catch them. Bhat Manzor managed to take down 
 Further down the path the party was met with a large stone door and another archer in an arrow slit. After much struggle the party managed to kill the archer (sorry I don't remember who killed him) they changed their focus to the large stone door. It seemed to be impossible to open. It couldn’t be climbed or knocked down (even if you shook the earth under the doors). 
 
 Skarus, the absolute legend, walks right up to the gate and puffs into a cloud of smoke. Appearing on the other side, he lifts the bar to open the gate. We are met with a large pit (40ft across) and a rope bridge that has been cut. The party manages to find some hidden doors leading to the arrow slits and grabs all of the ears of the enemies that had been slain.  We ended the night with a long rest. Discussing  how we were going to make it across. 
-The party meets in the Yawning Portal seeking their next adventure...
+
+## 14AUG2020
+Our party awakes after a fantastic rest on the doorstep of an occupied fortress. (Seriously, absolute mad lads.) Luckily the orcs were too intimidated by our group of alpha chads and chose not to attack us during our rest. 
+The party then discussed the best strategy for getting further in the holding. They all agreed that Bhat Manzor could TOTALLY jump the pit no problem especially with the jump buff provided by Yesod. (This is cannon now. Nothing anyone can say will change the facts.) But before he made his heroic leap Frekth proposed the party look for any other hidden doors. 
+
+During this search Skarus found a secret door and the party worked together to discover the method for opening it. This required two players to activate switches in different areas of the hall. Once the door slid open it reviled a short hallway with no exit. After 10 seconds the door closed again trapping Bhat and Skarus in the dark while the rest of the party stood on the other side of the door. After a nice session of “push the buttons” the crew decided to all pile into the hallway and let the door close behind them. 
+
+Searching in the short hallway our heroes were able to find another hidden door at the opposite end. Upon opening this door, they discovered that they were in a barracks filled with enemy orcs. Most of the party fought from the cover of the hallway while two moved forward. Skarus preformed his shadow jutsu and the party slowly took down the enemies and cleared the room. 
+
+When we got down to just two enemies left (one seemed to be an officer) the officer ran from the room and the second tried to follow. Bhat ran across the room and manged to wrestle the orc to the ground. After tying him up the party barricaded the room and took a long rest. 
